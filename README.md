@@ -1,0 +1,1 @@
+# manifeste-co-creation-humain-ia
